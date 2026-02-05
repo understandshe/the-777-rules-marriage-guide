@@ -1,5 +1,3 @@
-# the-777-rules-marriage-guide
-The 777 Rules for Marriage: A complete 777 rules for couples pdf guide and tracker to save your relationship from the "roommate phase."
 # The 777 Rules for Marriage: How a Napkin and a Stranger Saved Us
 
 > "I don't know if I love you anymore." We were drowning in plain sight, becoming roommates with wedding rings. This is our raw story of using the **777 rules for couples** to find our way back.
